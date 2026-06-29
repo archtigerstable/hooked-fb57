@@ -1,4 +1,4 @@
-
+Experience hooked like never before with smart Scripts for hooked, the #1 Script. Includes auto-upgrade and infinite resources for unbeatable
 
 
 
